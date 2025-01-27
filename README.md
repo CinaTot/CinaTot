@@ -5,7 +5,7 @@
 - HELLO !!!!!! This is for PONY TOWN only !
 - HIYA IM EMERSON / CINATOT / STINKER . I go by he/it pronouns.
 - I sometimes have a typing quirk where i talk in all caps ^_^
-- PLEASE INTERACT WITH ME !!! ***>> C+H, INT, W2I, RPDNI, CD. <<***
+- PLEASE INTERACT WITH ME !!! ***>> C+H, INT, W2I, RPDNI, CD, DNC. <<***
 - 
 - 🟢 ONLINE - Free to chat!
 - 💬 LOOKING FOR CHAT - Interact pls ^_^
