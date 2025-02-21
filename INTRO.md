@@ -1,33 +1,45 @@
 - ![image](https://github.com/user-attachments/assets/930f6d71-b0f5-42fe-ad96-ef8dd01dd805)![image](https://github.com/user-attachments/assets/930f6d71-b0f5-42fe-ad96-ef8dd01dd805)
 -![image](https://github.com/user-attachments/assets/d269c6ee-4b38-48a3-8178-8e14ac086622)![image](https://github.com/user-attachments/assets/f80462ae-3bc7-42d7-aeef-52821cb8c186)
--
+- ***Hello stranger !***
 - ![](https://komarev.com/ghpvc/?username=CinaTot)
+-
+- ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e) [strawpage](https://cinatot.straw.page) ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e) [pronouns](https://pronouns.cc/@CinaTot) ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e) [bsky](https://bsky.app/profile/cinatot.bsky.social) ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e)
+- 
 - HELLO !!!!!! This is for PONY TOWN only !
-- HIYA IM EMERSON / CINATOT / STINKER . I go by he/it pronouns.
-- I sometimes have a typing quirk where i talk in all caps ^_^
+- HIYA IM EMERSON / CINATOT . I go by he/it pronouns.
 - PLEASE INTERACT WITH ME !!! ***>> C+H, INT, W2I, RPDNI, CD, DNC. <<***
 - 
+- ![4dc7da57](https://github.com/user-attachments/assets/b6272830-3432-4928-8952-f450e2fc3c06)
 - 🟢 ONLINE - Free to chat!
 - 💬 LOOKING FOR CHAT - Interact pls ^_^
 - 🎭 LOOKING FOR ROLEPLAY - I'm never on this status.
 - 🌙 IDLE - I'm offtab! W2I.
-- ⛔ DND - Interact with caution unless pony says otherwise!
+- ⛔ DND - Interact with caution / Do not interact unless friend !
+-  ![4dc7da57](https://github.com/user-attachments/assets/b6272830-3432-4928-8952-f450e2fc3c06)
 - 
-- *Where are you normally at?*
+- *Where are you normally at?* ⋆｡°✩
 - I'm always on the main safe server, usually in the Dave and Bambi area, Roblox area and Sonic the Hedgehog area.
 - I'm sometimes on island maps or wandering around.
 -
-- *Boundaries?*
+- *Boundaries?* ⋆｡°✩
 - Please feel free to C+H and int! I'm normally offtab so also w2i.
 - ***Do not cover me, attempt to roleplay with me, copy me or take inspo from me.***
 - You can ask for inspo but it's probably a no.
 -
-- *How do I know a pony is you?*
+- *How do I know a pony is you?* ⋆｡°✩
 - My style is very recongiseable since its very neon and all over the place. I'm also almost ALWAYS a Dave and Bambi character.
 - Other than that, I will have my github linked.
 -
-- *What's your DNI and BYI?*
-- Check my strawpage ! Has everything there along with extra information!! >> https://cinatot.straw.page <<
+- *What do you like?* ⋆｡°✩
+- DAVE AND BAMBI DAVE AND BAMBI DAVE AND BAMBI BHFVGBHJNDMKIHUtfvh
+- Dave's fun Algebra Class, Sonic The Hedgehog, Objectified, Eddsworld, Wings of Fire, Warrior Cats, Forsaken, Let Him Go, Regretevator
+-
+- *What's your DNI / BFYI ?* ⋆｡°✩
+- My BFYI and DNI are in my strawpage!
+- But I will put fandom DNI here.
+- Dave x Expunged, Bambi x Expunged shippers, Fundamental Paper Education, Hazbin Hotel, Helluva Boss, Country Balls, Country Humans, solar balls, Dandy’s World, Dream SMP.
+- ***Thin ice***
+- Phighting, Object shows, Sprunki, Project Sekai, Touhou, Care Bears, Genshin Impact, My Hero Acadamia
 -
 - ![image](https://github.com/user-attachments/assets/702ba766-8618-4426-a3f5-12577197dde7)![image](https://github.com/user-attachments/assets/28f438d3-4273-40d2-b9af-fa98d3d64d95)
 - ![image](https://github.com/user-attachments/assets/930f6d71-b0f5-42fe-ad96-ef8dd01dd805)![image](https://github.com/user-attachments/assets/930f6d71-b0f5-42fe-ad96-ef8dd01dd805)
