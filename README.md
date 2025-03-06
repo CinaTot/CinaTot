@@ -40,6 +40,7 @@
 - Dave x Expunged, Bambi x Expunged shippers, Fundamental Paper Education, Hazbin Hotel, Helluva Boss, Country Balls, Country Humans, solar balls, Dandy’s World, Dream SMP.
 - ***Thin ice***
 - Phighting, Object shows, Sprunki, Project Sekai, Touhou, Care Bears, Genshin Impact, My Hero Acadamia
+- This may sound pathetic but manes 61 and 62 make me really uncomfy.
 -
 - ![image](https://github.com/user-attachments/assets/702ba766-8618-4426-a3f5-12577197dde7)![image](https://github.com/user-attachments/assets/28f438d3-4273-40d2-b9af-fa98d3d64d95)
 - ![image](https://github.com/user-attachments/assets/930f6d71-b0f5-42fe-ad96-ef8dd01dd805)![image](https://github.com/user-attachments/assets/930f6d71-b0f5-42fe-ad96-ef8dd01dd805)
