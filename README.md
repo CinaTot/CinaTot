@@ -32,7 +32,7 @@
 -
 - *What do you like?* ⋆｡°✩
 - DAVE AND BAMBI DAVE AND BAMBI DAVE AND BAMBI BHFVGBHJNDMKIHUtfvh
-- Dave's fun Algebra Class, Sonic The Hedgehog, Objectified, Eddsworld, Wings of Fire, Warrior Cats, Forsaken, Let Him Go, Regretevator
+- Dave and Bambi, Frozen Soul [DG], My Singing Monsters, My Little Pony, Let Him Go, Dave's Fun Algebra Class, Sonic The Hedgehog, Forsaken, Reretevator.
 -
 - *What's your DNI / BFYI ?* ⋆｡°✩
 - My BFYI and DNI are in my strawpage!
