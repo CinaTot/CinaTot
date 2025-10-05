@@ -6,7 +6,7 @@
 - ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e) [strawpage](https://cinatot.straw.page) ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e) [pronouns](https://pronouns.cc/@CinaTot) ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e) [bsky](https://bsky.app/profile/cinatot.bsky.social) ![21-1](https://github.com/user-attachments/assets/4156b562-0321-43fc-a729-3739dfad056e)
 - 
 - HELLO !!!!!! This is for PONY TOWN only !
-- HIYA IM EMERSON / CINATOT . I go by he/it pronouns.
+- HIYA IM EMERSON / CINATOT . I go by he/him pronouns.
 - PLEASE INTERACT WITH ME !!! ***>> C+H, INT, W2I, RPDNI, CD, DNC. <<***
 - 
 - ![4dc7da57](https://github.com/user-attachments/assets/b6272830-3432-4928-8952-f450e2fc3c06)
