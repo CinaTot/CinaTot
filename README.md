@@ -3,6 +3,8 @@
 
 <a href="https://cinatot.nekoweb.org/" tarnet="blank">NekoWeb</a> ~ <a href="https://bsky.app/profile/cinatot.bsky.social" target="_blank">Bluesky</a> ~ <a href="https://discord.com/invite/WVZvzNZ242" target="_blank">Discord</a> ~ <a href="https://www.tiktok.com/@cinatot" target="_blank">TikTok</a> ~ <a href="https://www.tumblr.com/blog/cinatot" target="_blank">Tumblr</a> ~ <a href="https://toyhou.se/CinaTot" target="_blank">ToyHouse</a> ~ <a href="https://artfight.net/~cinatot" target="_blank">Artfight</a> ~ <a href="https://pronouns.cc/@CinaTot" target="_blank">Pronouns.cc</a> ~ <a href="https://www.youtube.com/@cinatot" target="_blank">YouTube</a> ~ <a href="https://www.roblox.com/users/4174618143/profile" target="_blank">Roblox</a>
 
+![Badge](https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2FCinaTot&label=Visitors+%21&icon=heart-fill&color=%23fd7e14&message=&style=plastic&tz=Australia%2FVictoria)
+
 <h1>CinaTot / Emerson / David</h1>
 <h2>Gendervoid aroace He/Him bunny dude who is also a MINOR.</h2>
 <h2> Crosshipper, multishipper and self taught artist + animator. </h2>
