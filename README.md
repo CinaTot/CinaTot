@@ -1,4 +1,5 @@
 <p> redoing this but yeag. sorry its not aesthetic . </p>
+<a href="https://bsky.app/profile/cinatot.bsky.social" target="_blank">BLUESKY</a> || <a href="https://cinatot.nekoweb.org" target="_blank">NEKOWEB</a>
 <p> call me CinaTot/Emerson/David , he/him pronouns <br> plural , artist , animator , beginner coder <br> I LOVE DAVE AND BMBI I LOOVE DAVE AND BAMBI I LOO</p>
 <div style="text-align: center;">
 <img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampterminal' alt="A stamp with the Dave and Bambi Terminal on it." style= "margin-top: 25px;">
@@ -15,5 +16,6 @@
 <img src='https://file.garden/ajMxSEmYYgNBSzi6/GRAPHICS/david%20stamp.png' alt="A stamp of David listening to music.">
 <img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampwearedaveandbambi.png' alt="A stamp of Dave and Bambi with impact text saying 'we are dave and bambi'">
 <img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampcutebambi.png' alt="A stamp of Bambi eating a sandwich infront of the fridge.">
-<img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampbunnybinky.png' alt="A stamp with a black bunny binkying, with the text 'yippe! yahoo! whoopee!'."> why is the stamp here not working . wahtever idc<img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampnothuman.gif' alt="A black stamp with white text saying No-one said that I'm a human.">
+<img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampbunnybinky.png' alt="A stamp with a black bunny binkying, with the text 'yippe! yahoo! whoopee!'.">
+  <img src='https://file.garden/ajMxSEmYYgNBSzi6/nekoweb/stamps%20and%20blinkies/stampnothuman.gif' alt="A black stamp with white text saying No-one said that I'm a human.">
 </div>
