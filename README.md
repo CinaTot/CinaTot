@@ -4,8 +4,7 @@
 <h3 align="center"> <a href="https://cinatot.nekoweb.org/" target="_blank">NEKOWEB</a> , <a href="https://cinatot.straw.page" target="_blank">STRAWPAGE</a> , <a href="https://pronouns.cc/@CinaTot" target="_blank"> PRONOUNS CC </a> , <a href="https://bsky.app/profile/cinatot.bsky.social" target="_blank">BLUESKY</a> </h3>
 
 <p align="center"> This GitHub is for <a href="https://pony.town/" target="_blank">PONYTOWN</a> !</p>
-<p align="center"> Last updated - 26 / 10 / 2026</p>
-
+<p align="center"> Last updated - 26 / 10 / 2026 <br> ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=CinaTot) </p>
 <p align="center"> Hiya !! I'm CinaTot aka Emerson or David or Dave or whatever you wanna call me x) <br> This will probably not be updated often so please refer to my NekoWeb (linked above) for up to date info ! </p>
 <p align="center"> Cuddles / Hide is always welcome , but I do not roleplay. Please don't ask to ! <br> I only play Pony Town to talk to people, so don't be afraid to talk to me. <br> If I'm sitting alone , I'm probably offtab. Feel free to whisper and I'll respond in a bit ! x) </p>
 
